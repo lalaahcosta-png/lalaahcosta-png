@@ -20,4 +20,4 @@ Sou uma profissional com sólida trajetória em **Gestão Administrativa e Finan
 ---
 
 📫 **Conecte-se comigo:**
-[LinkedIn](SEU_LINK_DO_LINKEDIN_AQUI) | [E-mail](SEU_EMAIL_AQUI)
+[LinkedIn](linkedin.com/in/larissa-costa) | [E-mail](lalaah.costa@gmail.com)
